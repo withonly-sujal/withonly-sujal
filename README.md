@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sujal Kadam (withonly-sujal)
 - 👀 I’m interested in Coding, 3D Animations and Editing
 - 🌱 I’m currently learning IT Engineering
-- 💞️ I’m looking to collaborate on Projects
+- 💞️ I’m looking to collaborate on Projects, Hackathons
 - 📫 How to reach me sujal.kadam20805@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I try to learn unnecessary stuff
